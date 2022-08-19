@@ -1,1 +1,0 @@
-# ar_test_adidasnotg6
